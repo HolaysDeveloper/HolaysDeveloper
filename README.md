@@ -1,0 +1,2 @@
+- It may not be 100% created by me. I'm a novice developer, don't beat me with sticks plz :(((
+- 
